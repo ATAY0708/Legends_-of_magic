@@ -1,1 +1,1 @@
-# Legends_-of_magic
+# Legends_of_magic
